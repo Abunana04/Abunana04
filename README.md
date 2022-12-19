@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Abunana04.
+- 👋 Hi, I’m @Abu_Nana04.
 - My name is Abdulaziz Mahmud know as Abu Nana.
 - 👀 I’m interested in tech and love to hang around them  
 - 🌱 I’m currently learning Blockchain and digital economy employment 
@@ -9,9 +9,10 @@
 
      WhatsApp: https://wa.me/message/QPTME5LQVZ2UE1. 
 
-     LinkedIn: https://www.linkedin.com/in/abu-nana04-abz.  
-     
-     Facebook: https://www.facebook.com/AbuNana.ABZ. 
+     LinkedIn: https://www.linkedin.com/in/AbuNana04.
+  
+     Twitter:Https//www.twitter.com/Abu_Nana04
+     Facebook: https://www.facebook.com/AbuNana.ABZ.
  
 
 <!---
