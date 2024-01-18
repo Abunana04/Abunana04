@@ -6,7 +6,7 @@
 - 📫 How to reach me via telephone number 
 -    08147375516,  07086657536. 
 
-     WhatsApp: https://wa.me/message/QPTME5LQVZ2UE1. 
+     WhatsApp: +2348147375516
 
      LinkedIn: https://www.linkedin.com/in/AbuNana04.
   
