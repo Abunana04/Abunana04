@@ -1,11 +1,10 @@
 - 👋 Hi, I’m @Abu_Nana04.
 - My name is Abdulaziz Mahmud know as Abu Nana.
 - 👀 I’m interested in tech and love to hang around them  
-- 🌱 I’m currently learning Blockchain and digital economy employment 
-     development agency (DEEP), in the community of National information technology department program (NITDA).
+- 🌱 I’m currently into frontend Web development and UI/UX design.
   💞️ I’m looking forward to collaborate with tech people,community, and society.
 - 📫 How to reach me via telephone number 
--    08147375516,  09159382922,  07086657536. 
+-    08147375516,  07086657536. 
 
      WhatsApp: https://wa.me/message/QPTME5LQVZ2UE1. 
 
